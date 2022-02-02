@@ -1,0 +1,3 @@
+- 👋 Kia ora, I’m George Bates @georgewoofbates
+- 🇳🇿 Based in Tāmaki Makaurau, Aotearoa - Auckland, New Zealand
+- 📫 Drop me a line on george@lustredigital.co.nz to get in touch
